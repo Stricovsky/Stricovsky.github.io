@@ -1,0 +1,1 @@
+# Stricovsky.github.io
